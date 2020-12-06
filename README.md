@@ -5,7 +5,7 @@ Add More then 10000+ Members in 300 Seconds. No Daily Limit/ No Time Limit. Only
 
 ====================================================================
 
-Price of Telegram Pro Adder is 25$. 
+# Price of Telegram Pro Adder is 25$. 
 
 ====================================================================
 
