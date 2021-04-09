@@ -1,12 +1,11 @@
 # Pro-Telegram-Adder-2021
 Add More then 10000+ Members in 300 Seconds. No Daily Limit/ No Time Limit. Only real and active members will export. No need to change API id &amp; Hash (Only two Api and Hash Required). Auto join group. Add members in private and public groups. Add More Than 100+ Number. Export Members from Private &amp; Public Groups. Add Members From Any Target Group. No Need to login Next Time. Add through Id No. So there is no need of Username. Login through 2 factor password. Don't have to lose accounts anymore.
 
-# This script won't ban your numbers because script based on both libraries 1. Telethon / 2. Pyrogram.
+# The software won't ban your numbers it also has smart feature of ban-firewall.
 
 ====================================================================
 
-# Price of Telegram Pro Adder is 32$. 
-
+# Price is 32$. and total worth you won't be disaapointed at all.
 ====================================================================
 
 OTP Service Available - 200 fresh new ready-made telegram accounts for 50$
