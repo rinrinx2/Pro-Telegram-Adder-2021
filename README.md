@@ -5,15 +5,14 @@ Add More then 10000+ Members in 300 Seconds. No Daily Limit/ No Time Limit. Only
 
 ====================================================================
 
-# Price of Telegram Pro Adder is 25$. 
+# Price of Telegram Pro Adder is 32$. 
 
 ====================================================================
 
-Member Adding Service - Choose your target group you want me to add in your group. ( $5for 1k Real & Active Members)
-
+OTP Service Available - 200 fresh new ready-made telegram accounts for 50$
 ====================================================================
 
-MODE OF PAYMENT: Paypal, Transferwise, Paytm PAYMENT FIRST! too many scammers out there. DON'T SENT ANY PAYMENT unless you verified that I'm legit! CHECK ALL YOU WANT .
+MODE OF PAYMENT: Paypal, Transferwise,. To many scammers out there. DON'T SENT ANY PAYMENT unless you verified that I'm legit! CHECK ALL YOU WANT .
 
 CONTACT ME ON TELEGRAM:- https://t.me/daredevilkinng
 
