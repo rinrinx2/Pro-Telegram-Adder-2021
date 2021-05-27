@@ -5,10 +5,10 @@ Add More then 10000+ Members in 300 Seconds. No Daily Limit/ No Time Limit. Only
 
 ====================================================================
 
-# Price is 32$. and total worth you won't be disaapointed at all.
+# Price is 35$. and total worth you won't be disaapointed at all.
 ====================================================================
 
->>>>OTP Service Available - 200 fresh new ready-made telegram accounts for 50$
+>>>>OTP Service Available - 200 fresh new ready-made telegram accounts for 80$
 ====================================================================
 
 >>>>MODE OF PAYMENT: Paypal, Transferwise,. To many scammers out there. DON'T SENT ANY PAYMENT unless you verified that I'm legit! CHECK ALL YOU WANT .
